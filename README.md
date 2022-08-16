@@ -1,1 +1,1 @@
-# Majas_darbs_1708
+# Majas_darbs_1708_Renate_Lubaua
